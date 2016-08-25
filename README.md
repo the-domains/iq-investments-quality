@@ -1,0 +1,1 @@
+# iq-investments-quality
